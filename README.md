@@ -32,5 +32,5 @@ Selain teknologi, saya juga memiliki ketertarikan besar pada psikologi dan bagai
 ---
 
 ## Contact
-
+Instagram: @syfalii__
 GitHub: https://github.com/packet-ali
